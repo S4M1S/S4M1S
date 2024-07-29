@@ -2,7 +2,7 @@
 - 👀 I’m interested in aprender 
 - 🌱 I’m currently learning muito
 - 💞️ I’m looking to collaborate em que for preciso
-- 📫 How to reach me ...
+- 📫 How to reach me? in my e-mail: 00001124529494sp@al.educacao.sp.bov.br
 - 😄 Pronouns: ela/dela
 - ⚡ Fun fact: jogo volei :)
                     
